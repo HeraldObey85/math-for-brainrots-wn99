@@ -1,4 +1,4 @@
-#  
+#  new math for brainrots Script is the best math for brainrots Script, featuring fly and infinite resources. Safe and powerful for all your needs.
 
 
 
